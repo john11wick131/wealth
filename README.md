@@ -1,1 +1,1 @@
-# wealth
+all  one is a men
